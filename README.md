@@ -192,6 +192,7 @@ ALWAYS CROSS THE MORRISON BRIDGE ON THE SOUTH SIDE (The stairs on the north-side
  * [White Owl Social Club](http://www.whiteowlsocialclub.com/#about): Vegan hipsters
  * [Le Montage Bistro](http://www.montageportland.com): Been here forever. If you ever meet a native Portlander, chances are they had a prom dinner here.
  * [Home Bar](http://www.homebarpdx.com/): Ain't terrible
+ * [Pambiche] (https://www.pambiche.com/) For empanadas
 
 ## SE/Division area
 * [Tasty n Daughters](http://www.tastyndaughters.com/): Brunch
